@@ -1,0 +1,1 @@
+# About stk-geral stack
